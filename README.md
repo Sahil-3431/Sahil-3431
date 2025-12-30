@@ -3,7 +3,6 @@
 
 Email 👉 ✉️ **sahil321567@gmail.com**
 
-- 🔭 **I’m currently working on:** Ducat India
 - 🌱 **I’m currently learning:** Machine Learning
 - 📫 **How to reach me:** sahil321567@gmail.com
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
